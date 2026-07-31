@@ -1,2 +1,0 @@
-# ruknaltayebjewelry
-بيع وشراء الذهب 
